@@ -1,4 +1,4 @@
-# 2024 Tom’s Wishlist Xmas & Bday
+## 2024 Tom’s Wishlist Xmas & Bday
 
 - Electric toothbrush (NYT recommends [Oral-B Pro 1000](https://www.nytimes.com/wirecutter/reviews/best-electric-toothbrush/))
 - [Proko comic drawing course](https://www.proko.com/course/creating-a-comic-page) (alternatively find me something in Barcelona!)
