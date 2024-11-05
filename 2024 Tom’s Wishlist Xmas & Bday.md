@@ -13,3 +13,5 @@ Gift me some digital records on Bandcamp. [Here is how](https://get.bandcamp.hel
 - IKOQWE - [The Beginning, the Medium, the End and the Infinite](https://ikoqwe.bandcamp.com/album/the-beginning-the-medium-the-end-and-the-infinite) (or [get the vinyl](https://ikoqwe.bandcamp.com/album/the-beginning-the-medium-the-end-and-the-infinite))
 - Cynic - [Carbon​-​Based Anatomy](https://cyniconline.bandcamp.com/album/carbon-based-anatomy)
 - Tim Hecker - [Ravedeath, 1973](https://timhecker.bandcamp.com/album/ravedeath-1972) (or [get the vinyl](https://timhecker.bandcamp.com/album/ravedeath-1972))
+
+[More options here.](https://docs.google.com/document/d/1UF3cWugu9CJdUyTbX5HTEvqNsIuXON4Zu76LJ-rd2w0/edit?tab=t.0#heading=h.s2uugerwk002)
