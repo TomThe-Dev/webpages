@@ -6,7 +6,9 @@
 - Mini printer - for photos and/or stickers
 ### Music
 Gift me some digital records on Bandcamp. [Here is how](https://get.bandcamp.help/hc/en-us/articles/23006325270423-Sending-gifts). Email is tom@crammond.name.
+
 *Ideally make the purchase on a [bandcamp friday](https://isitbandcampfriday.com/) when all proceeds go directly to the artist!*
+
 Here are some suggestions, but feel free to get me something you like :)
 
 - [Crumbling](https://midairthief.bandcamp.com/album/crumbling) ([vinyl](https://www.topshelfrecords.com/products/645044-mid-air-thief-crumbling)) - Mid-Air Thief
