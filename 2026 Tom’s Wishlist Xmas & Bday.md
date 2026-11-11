@@ -19,4 +19,4 @@ Here are some suggestions, but feel free to get me something you like :)
 - [No Seperation](https://mspainthattiesburg.bandcamp.com/album/no-separation) - MSPAINT
 - [I I](https://bloodabscission.bandcamp.com/album/i-i) - Blood Abscission
 
-[More suggestions...](./VinylWishlist.md)
+[More suggestions...](VinylWishlist.md)
