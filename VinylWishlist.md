@@ -1,3 +1,5 @@
+ [← Back to wishlist](/)
+
 - Petite Afrique - Somi
 - Land Animal - Bent Knee
 - Shiroi - Mansur Brown
